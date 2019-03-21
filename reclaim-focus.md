@@ -1,4 +1,4 @@
-### Reclaim Your Focus by Letting Your Mind Wander
+# Reclaim Your Focus by Letting Your Mind Wander
 
 Any of us are always on the lookout for new ways to boost our productivity. We have long lists of things we “should” be doing — there’s always another habit to take up, another activity to fit into our schedule. When we shift from one task or activity to another, we often try to focus our attention by sheer force of will. Our phone is still at our fingertips, notifications chime in at regular intervals, and our favorite distractions are just a few taps away.
 
