@@ -1,3 +1,5 @@
+# When You Attempt to Force an Outcome, the Universe Will Resist
+
 Capitalizing on what comes easily is how successful people tend to get ahead. It’s also part of the success story that’s often left out because it’s almost impossible to talk about without it becoming misconstrued.
 
 Successful people don’t work hard (that word, “hard,” has the wrong connotation). Successful people don’t keep throwing effort at dead ends. They also don’t force what’s nonviable, ineffective, or just simply not working out. They work consistently where they see the most results, and the reason they are able to work so often—usually much more than their peers—is because the work comes somewhat naturally to them. If it didn’t, they’d be exhausted, burned out, and left with minimal results.
