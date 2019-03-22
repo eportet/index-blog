@@ -1,3 +1,5 @@
+[preview](https://neilpatel.com/wp-content/uploads/2018/10/blog.jpg)
+
 # When You Attempt to Force an Outcome, the Universe Will Resist
 
 Capitalizing on what comes easily is how successful people tend to get ahead. It’s also part of the success story that’s often left out because it’s almost impossible to talk about without it becoming misconstrued.
