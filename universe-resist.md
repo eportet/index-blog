@@ -1,4 +1,4 @@
-[preview](https://neilpatel.com/wp-content/uploads/2018/10/blog.jpg)
+![preview](https://neilpatel.com/wp-content/uploads/2018/10/blog.jpg)
 
 # When You Attempt to Force an Outcome, the Universe Will Resist
 
